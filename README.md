@@ -22,7 +22,9 @@
 <img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/6e964e4d-6dea-412f-8287-671762a774ea" />  <img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/c354f6d2-4905-4f72-bd41-5299b4931eeb" />  <img width="200" height="100" alt="image" src="https://github.com/user-attachments/assets/6ec91602-ce1b-4c55-9e76-2575c67d35fb" />
 
 
-I LIKE A LOT OF STUFF !!!! BUT I LOVE PLASMASHIPPING. JAY X KAI. KAI X JAY FROM LEGO NINJAGO. EVERYONE SHOULD GET MORE PLASMAPILLED NOW!!!!!! MORE ON MY STRAWPAGE :3 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/a6458458-0127-4346-bf67-f2d52df9ce84" />
+I LIKE A LOT OF STUFF !!!! BUT I LOVE PLASMASHIPPING. JAY X KAI. KAI X JAY FROM LEGO NINJAGO. EVERYONE SHOULD GET MORE PLASMAPILLED NOW!!!!!! MORE ON MY STRAWPAGE :3 
+
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/a6458458-0127-4346-bf67-f2d52df9ce84" />
 
 
 
