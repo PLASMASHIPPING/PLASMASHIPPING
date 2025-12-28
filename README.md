@@ -33,7 +33,7 @@
 
 I like a lot of stuff i like kai x jay . jay x kai. plasmashipping. plasma. More info on strawpage :3 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/a6458458-0127-4346-bf67-f2d52df9ce84" />
 
-DONT INTERACT IF YOU THINK FICTION DOESN'T AFFECT REALITY. YOU'RE ALL DELUSIONAL. PROSHIP DO NOT INTERACT 
+don't interact if you think fiction doesn't affect reality. you are all delusional. proshippers don't interact. block me.
 
 
 
