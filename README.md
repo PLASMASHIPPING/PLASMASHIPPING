@@ -12,13 +12,16 @@
   <img src="https://github.com/user-attachments/assets/86dce30f-3b8c-4945-938c-598c9efe9a01">
 </div>
 
+<div align="center"> 
+  
+ ![tumblr_320b10c284574790f00f21a88471e2fa_78ef7e8c_100](https://github.com/user-attachments/assets/db4af74e-825e-4777-a832-05c06ab742c4) ![tumblr_f9b392af955eca3d0accb9f2abbf7137_880a3668_100](https://github.com/user-attachments/assets/569c1b5c-3977-4f26-8481-13fa10959038)
 
 <div align="center">
   <img src="https://github.com/user-attachments/assets/bdc584cc-999a-435c-919b-4ffc26bec13a"> <img src="https://github.com/user-attachments/assets/bdc584cc-999a-435c-919b-4ffc26bec13a">
 </div>
 <div align="center"> 
 
- ![tumblr_320b10c284574790f00f21a88471e2fa_78ef7e8c_100](https://github.com/user-attachments/assets/db4af74e-825e-4777-a832-05c06ab742c4) ![tumblr_f9b392af955eca3d0accb9f2abbf7137_880a3668_100](https://github.com/user-attachments/assets/569c1b5c-3977-4f26-8481-13fa10959038)
+
 
 
 ![dhqf8x3-a89a1275-fedc-4daf-a388-b91910f88afd](https://github.com/user-attachments/assets/abead2d8-dff5-47de-a100-394cb82a6ca5) ![dak1y9w-4ffc78e4-de88-4ed4-bb87-db843f1adadf](https://github.com/user-attachments/assets/84755ebb-5c35-4680-badd-86dc6326695b) ![dak2209-393d26e5-094b-4173-8a56-87d8d315a89f](https://github.com/user-attachments/assets/273d0041-c197-4c78-b44f-d80695cf3b7a) ![daxo7h2-3192f3a1-7d46-4639-8d56-1376265b173c](https://github.com/user-attachments/assets/ebcc9101-38ec-446f-9d8f-399ad15508ff) 
@@ -71,7 +74,7 @@
 
 
 <p align="center">
-I like a lot of stuff i like kai x jay . jay x kai. plasmashipping. plasma. More info on strawpage :3 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/a6458458-0127-4346-bf67-f2d52df9ce84" />
+I like a lot of stuff that wont fit here. i like kai x jay . jay x kai. plasmashipping. plasma. More info on strawpage :3 <img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/a6458458-0127-4346-bf67-f2d52df9ce84" />
 <p align="center">
 don't interact if you think fiction doesn't affect reality. you are all delusional. proshippers don't interact. block me.
 
